@@ -1,4 +1,4 @@
-# First Personal passionate
+# First Personal site
 
 ## Motivation
 
